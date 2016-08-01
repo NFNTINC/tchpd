@@ -1,3 +1,3 @@
 # hckpd
 co-living creative/venture creation collective.
-http://hackpad.strikingly.com/
+http://hackpadio.strikingly.com/
