@@ -1,3 +1,3 @@
 # hckpd
 co-living creative/venture creation collective.
-http://hackpadio.strikingly.com/
+email for beta access: nfntdc[at]gmail
